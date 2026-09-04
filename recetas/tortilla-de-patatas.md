@@ -18,6 +18,7 @@
 4. Bate los huevos con una pizca de sal y mézclalos con las patatas. Deja reposar 5 minutos.
 5. Cuaja la mezcla en una sartén con un poco de aceite, 3-4 minutos por cada lado.
 6. Dale la vuelta con un plato y termina de cuajar al gusto.
+7. Si se cae la tortilla al darle la vuelta, toca limpiar.
 
 ## Notas
 
