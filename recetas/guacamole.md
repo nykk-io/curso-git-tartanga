@@ -1,10 +1,12 @@
 # Guacamole
 
-**Raciones:** 2 · **Tiempo:** 10 min · **Dificultad:** fácil
+**Raciones:** 2 · **Tiempo:** 30 min · **Dificultad:** difícil
+dsdfsfsfsdfxcvxvxvxc
 
 ## Ingredientes
 
 - 2 aguacates muy maduros
+- 2 Tacitas de amooooor
 - 1/2 cebolla pequeña
 - 1 tomate
 - 1 lima
