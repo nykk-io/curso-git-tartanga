@@ -1,4 +1,6 @@
+
 Lasaña de carne cojonuda
+
 
 Raciones: 4 · Tiempo: 1 h 15 min · Dificultad: media
 
@@ -68,5 +70,8 @@ Notas
 
 Puedes preparar la lasaña con antelación y hornearla justo antes de servir. Para que quede más cremosa, no escatimes en la bechamel.
 
+
 Gratina el queso, es muy importante.
+
+Tampoco te pases con la besamel!
 
