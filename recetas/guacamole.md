@@ -6,7 +6,7 @@ dsdfsfsfsdfxcvxvxvxc
 ## Ingredientes
 
 - 2 Tacitas de amooooor
-- 2 aguacates maduros
+- 3 aguacates verdes
 - 1/2 cebolla pequeña
 - 1 tomate
 - 1 lima
