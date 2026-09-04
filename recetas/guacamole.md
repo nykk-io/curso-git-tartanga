@@ -4,12 +4,14 @@
 
 ## Ingredientes
 
-- 2 aguacates maduros
+- 2 aguacates muy maduros
 - 1/2 cebolla pequeña
 - 1 tomate
 - 1 lima
 - Cilantro fresco
 - Sal
+- Boles
+
 
 ## Preparación
 
