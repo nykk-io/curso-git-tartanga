@@ -68,3 +68,5 @@ Notas
 
 Puedes preparar la lasaña con antelación y hornearla justo antes de servir. Para que quede más cremosa, no escatimes en la bechamel.
 
+Tampoco te pases con la besamel!
+
