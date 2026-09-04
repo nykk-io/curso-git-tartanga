@@ -1,6 +1,7 @@
 # Guacamole
 
-**Raciones:** 2 · **Tiempo:** 10 min · **Dificultad:** fácil
+**Raciones:** 2 · **Tiempo:** 30 min · **Dificultad:** difícil
+dsdfsfsfsdfxcvxvxvxc
 
 ## Ingredientes
 
